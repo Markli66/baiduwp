@@ -151,6 +151,6 @@ https://ikunn.icu
   【共享】咪咕视频钻石会员25-30天
   【共享】作业帮会员25-30天 售后25天
 
-### 购买地址： https://kingpang.huoyuan.cf/a/b/c/   
+### 购买地址：https://hezuba.top/
 
 ### 欢迎老板扫货
