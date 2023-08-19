@@ -1,7 +1,7 @@
 # baiduwp
 # 店铺网站地址
 
-https://kingpang.huoyuan.cf/a/b/c/
+https://hezuba.top/
 
 # 百度云不限速解析体验地址
 
@@ -12,6 +12,10 @@ https://kingpang.huoyuan.cf/a/b/c/
 爱奇艺，优酷，腾讯视频等主流视频网站免VIP观看，全网最全的VIP解析影视解析网站：
 
 https://liketv.top/
+
+ChatGPT公益免费站点
+
+https://ikunn.icu  
 
 ## 店铺主营业务：
 
