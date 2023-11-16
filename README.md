@@ -1,7 +1,7 @@
 # baiduwp
 # 店铺网站地址
 
-https://hezuba.top/
+https://vip.hezuba.top/
 
 # 百度云不限速解析体验地址
 
@@ -151,6 +151,6 @@ https://ikunn.icu
   【共享】咪咕视频钻石会员25-30天
   【共享】作业帮会员25-30天 售后25天
 
-### 购买地址：https://hezuba.top/
+### 购买地址：https://vip.hezuba.top/
 
 ### 欢迎老板扫货
